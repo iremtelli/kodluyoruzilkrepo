@@ -1,1 +1,1 @@
-vsc üzerinden ilk değişiklik
+vsc üzerinden ilk değişiklik1
